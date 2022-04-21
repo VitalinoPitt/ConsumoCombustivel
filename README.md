@@ -24,3 +24,8 @@ E   |  Até 4 Km/l
 
 ![image](https://user-images.githubusercontent.com/67445573/164532897-875e97e2-d037-42b5-94a0-32fb13954ea8.png)
 ![image](https://user-images.githubusercontent.com/67445573/164532921-426d34c3-5a77-41dc-be13-b644422aae62.png)
+![image](https://user-images.githubusercontent.com/67445573/164532973-b66422c3-aae5-47c7-bbfd-a042cb0d3cf9.png)
+![image](https://user-images.githubusercontent.com/67445573/164532983-4efe47c6-b50e-421e-92c8-0e6add0ef74e.png)
+![image](https://user-images.githubusercontent.com/67445573/164532994-045e6a29-a0ff-40de-b9bc-675e8451788a.png)
+![image](https://user-images.githubusercontent.com/67445573/164533004-1d737dfa-db8c-4e22-8784-a4402f695346.png)
+![image](https://user-images.githubusercontent.com/67445573/164533013-ec215c6b-c4de-4886-838c-ac5800f4095e.png)
